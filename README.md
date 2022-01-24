@@ -1,0 +1,1 @@
+# hotelbhaktipalace.github.io
